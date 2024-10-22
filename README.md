@@ -4,5 +4,4 @@
 🤝 I’m on the lookout for exciting collaborations that challenge the norm and redefine what's possible in the tech world.
 📫 Want to chat? Reach out to me here! insta ID: @sosdoos or @tlogics, e-mail: tejasc.tech@gmail,com,
 😄 Pronouns: He/Him
-⚡ Fun fact: I've danced my way to national-level victories and drawn award-winning art when I’m not busy turning ideas into reality with code!
 
